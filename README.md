@@ -1,0 +1,1 @@
+# T-cnicas-computacionais-refletindo-sobre-Intelig-ncia-Artificial-na-escola-07-06-42
